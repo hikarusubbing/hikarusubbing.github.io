@@ -21,4 +21,4 @@ Rating: PG-13 - Teens 13 or older
 `
 
 __Download Links__
-- Episode 1 : ~~MEGA~~ | [Torrent](https://nyaa.si/download/1083167.torrent)
+- Episode 1 | ~~MEGA~~ | [Torrent](https://nyaa.si/download/1083167.torrent)

@@ -25,5 +25,5 @@ The manga centers on Kohane Hatoya, a young woman who loves to be helpful to oth
 
 
 ### __Download Links__
-| Episode 1 | ~~MEGA~~ | [Torrent](https://nyaa.si/download/1083167.torrent) |
-| Episode 2 | ~~MEGA~~ | [Torrent](https://nyaa.si/download/1083167.torrent) |
+Episode 1 : ~~MEGA~~ / [Torrent](https://nyaa.si/download/1083167.torrent)
+Episode 2 : ~~MEGA~~ / [Torrent](https://nyaa.si/download/1083167.torrent)

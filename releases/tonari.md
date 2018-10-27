@@ -2,7 +2,7 @@
 
 # **Tonari no Kyuuketsuki-san**
 
-![image](https://myanimelist.cdn-dena.com/images/anime/1148/95328.jpg)
+![image](https://puu.sh/BRL8N/dfb98ff80f.png)
 
 **Synopsis :**
 

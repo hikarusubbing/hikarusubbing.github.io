@@ -26,3 +26,4 @@ The modern-day vampire comedy centers on high school girl Amano, who was saved f
 - Episode 1v2 : [MEGA](https://mega.nz/#!x5AFhQKL!6oiZ45U0KVtJlwNOOlyG0ntePNhi2Rte2a5V7Fq9XOo) / [Torrent](https://nyaa.si/view/1083808)
 - Episode 2 : [MEGA](https://mega.nz/#!t9Y1iSTS!L0Ktnkp3uveWN5wFkv4YRLvmhNlTJDVNqBmI20vvejw) / [Torrent](https://nyaa.si/view/1083809)
 - Episode 3 : [MEGA](https://mega.nz/#!FlBR3ADI!xS--kDUycqSNx01PJPlVVLqYdPOkMKuXL6EkS7H7NFI) / [Torrent](https://nyaa.si/view/1086135)
+- Episode 4 : [MEGA](https://mega.nz/#!F9J2BAzB!RXtjQvpByCYe3QkuicW26gyzHKDWqRMQjyu8VEm2KJc) / [Torrent](https://nyaa.si/view/1088427)
